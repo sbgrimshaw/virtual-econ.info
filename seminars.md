@@ -323,7 +323,7 @@ We will meet via Zoom every other Wednesday at 4pm CET, starting April 22nd. The
 
 ### Tax Administration Research Centre
 
-TARC, at the University of Exeter, is moving its semiar series online through Zoom. The centre's mission is to deliver outstanding interdisciplinary research in tax administration and policy that addresses the major challenges and strategic priorities confronting policymakers and tax authorities today.
+TARC, at the University of Exeter, is moving its seminar series online through Zoom. The centre's mission is to deliver outstanding interdisciplinary research in tax administration and policy that addresses the major challenges and strategic priorities confronting policymakers and tax authorities today.
 
 Seminars will be held fortnightly, taking place on Wednesdays at 09:00 EST / 14:00 BST. Register by signing up for the [mailing list](http://feele.exeter.ac.uk/vseminar_request). 
 
